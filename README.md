@@ -1,1 +1,0 @@
-# educacao-em-mocambique
